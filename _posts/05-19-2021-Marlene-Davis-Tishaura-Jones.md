@@ -1,7 +1,7 @@
 ---
 layout: post
-title:  "Marlene Davis, Alderwoman ward 19: One of the things I talk to my constituents about is having a better understanding of what it means for the word “defund police”, because they’re very confused"
-date:   2021-05-19 12:27:31 -0800
+title:  "Marlene Davis, Alderwoman ward 19"
+date:   2019-09-03 12:27:31 -0800
 categories: Jekyll update
 ---
 
