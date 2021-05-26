@@ -2,7 +2,7 @@
 layout: post
 title:  "Marlene Davis, Alderwoman ward 19: One of the things I talk to my constituents about is having a better understanding of what it means for the word “defund police”, because they’re very confused"
 date:   2021-05-19 12:27:31 -0800
-categories: Ways and Means Committee
+categories: Jekyll update
 ---
 
 Marlene Davis, Alderwoman ward 19: One of the things I talk to my constituents about is having a better understanding of what it means for the word “defund police”, because they’re very confused. I’ve explained it the best I could, but I need them to hear it from you. You are the one who is leading our city, and they must have the trust from. If you don’t mind explaining a little bit..
