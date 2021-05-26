@@ -11,3 +11,5 @@ Tishaura Jones, Mayor: Yes, thank you Alderwoman Davis. So, in this year’s bud
 What we’re using this money to do is to transform public safety and invest in things that actually make people safe. So, as I explained before, that $4 million will go to --- $1.5 million will be allocated to the Affordable Housing Trust Fund, $1 million is gonna go to Victim Support Services, including supporting funeral expenses, medical needs, child care, mental health support, case and crisis management, as well as trauma informed support. 
 
 That money’s really important and I’ll explain why because, a lot of time, if we can support victims at the time crime occurs, and give them support that they and their families need, often times that can divert future crime from happening.
+
+[Twitter Post](https://twitter.com/StlPoliticClips/status/1397026723049390080?s=20)
