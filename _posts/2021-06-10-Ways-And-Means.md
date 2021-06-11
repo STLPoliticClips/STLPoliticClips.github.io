@@ -11,6 +11,8 @@ board, budget, alderman, bill, cuts, committee, president, aldermen, mayor, adop
 SPEAKERS
 Marlene Davis, 19th ward Alderwoman, Dan Guenther, 9th ward alderman, Lisa Middlebrook, 2nd ward Alderwoman, Heather Navarro, 28th ward Alderwoman, Sharita Rogers, Clerk, Pamela Boyd, 27th Ward Alder, Joe Vaccaro, 23rd ward Alderman, Lewis Reed, President Board of Alderman, Paul Payne, Budget Director, Carol Howard, 14th ward Alderwoman, Tom Oldenburg, 16th ward Alderman
 
+[https://www.youtube.com/watch?v=WO96MS6N_g8](VIDEO LINK)
+
 Marlene Davis, 19th ward Alderwoman  00:04
 Just a second. Okay, we're ready to go. Thank you very much. I'd like to call our meeting to order for June 10. The Ways and Means Committee meeting. Madam Clerk, would you please call the roll?
 
