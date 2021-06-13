@@ -1,8 +1,3 @@
----
-layout: post
-title: "Christine Ingrassia History Spy Plane"
-categories: speeches
----
 
 Christine Ingrassia, Alderwoman ward 6: I just wanted to weight in, in support of this bill. I understand a lot of the questions that are being asked, and I guess that I would be a lot more concerned, if everyone has not been at the table since the former Alderman Kennedy has been bringing these issues to the forefront. 
 
