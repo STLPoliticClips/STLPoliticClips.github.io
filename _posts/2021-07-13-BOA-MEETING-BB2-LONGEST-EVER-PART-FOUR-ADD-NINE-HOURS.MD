@@ -1,10 +1,8 @@
 
 7-13-21 | Board of Alderman | full | BB2, NextDoor Bill, Foundry, longest meeting PART 4 (ADD 9 HOURS TO TIME STAMP)...
 Wed, 7/14 12:31PM • 2:59:28
-SUMMARY KEYWORDS
-alderman, city, bill, encampments, president, ward, issues, vote, board, opt, police, car, public safety director, residents, folks, downtown, people, home, move, house
-SPEAKERS
-Sarah Wood Martin, 11th ward Alderwoman, James Page, 5th ward Alderman, Jesse Todd, 18th ward Alderman, Annie Rice, 8th ward Alderwoman, Joe Vollmer, 10th ward Alderman, Shane Cohn, 25th ward Alderman, Dr. Megan Green, 15th ward Alderwoman, Sharita Rogers, Clerk, Dan Guenther, Alderman ward 9, Anne Schweitzer, 13th Ward Alderwoman, Tom Oldenburg, Alderman ward 16, Joe Vaccaro, 23rd ward Alderman, Lewis Reed, President Board of Alderman, Brandon Bosley, 3rd ward Alderman, Christine Ingrassia, 6th ward Alderwoman, Tina "Sweet T" Pihl, 17th ward Alderwoman, Bret Narayan, 24th Ward Alderman, Jack Coatar, 7th ward Alderman, Jeffrey Boyd, 22nd ward Alderman, Lisa Middlebrook, Alderwoman ward 2, Dwinderlin Evans, 4th ward Alderwoman, Marlene Davis, Alderwoman ward 19, Carol Howard, 14th ward Alderwoman, John Collins-Muhammad, 21st Alderman
+[VIDEO HERE](https://www.youtube.com/watch?v=L_MhfVA86Qs)
+
 
 James Page, 5th ward Alderman  00:00
 Use pickup on a regular basis. So it doesn't end up a literal garbage dump. It happens every time. So I'm gonna ask the Alderwoman from the six, to tell me anything she can to inspire confidence that these intentional encampments, how at home colonies, tiny home, villages, will be managed in an orderly, sanitary manner, so that they do not degrade the safety and quality of life of the surrounding neighborhoods. With that, I will yield for answers.
